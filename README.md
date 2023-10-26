@@ -1,4 +1,4 @@
-### Hey ☕, I'm [Chris](https://github.com/Chrico)
+# Hey ☕, I'm Chris!
 
 🖥️ I'm the Director of Engineering (Technical Excellence) at [Inpsyde](https://inpsyde.com).
 
