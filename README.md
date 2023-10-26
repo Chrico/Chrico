@@ -13,3 +13,7 @@
 ---
 
 [![Chris's Github Stats](https://github-readme-stats.vercel.app/api?username=chrico&count_private=true&show_icons=true&theme=dark)](https://github.com/chrico)
+
+---
+
+![2023-09-13-SimRig](https://github.com/Chrico/Chrico/assets/3417446/51d247c2-c304-4a3d-84db-1e768cbba18d)
