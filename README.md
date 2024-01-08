@@ -10,6 +10,12 @@
 
 🍣 Sushi and Anime.
 
+## 🔗Links
+
+- [Linkedin](https://www.linkedin.com/in/christian-leucht-440500127/)
+- [Instagram](https://www.instagram.com/chrisxapex/)
+- [Twitter](https://twitter.com/fixgemacht)
+
 ---
 
 [![Chris's Github Stats](https://github-readme-stats.vercel.app/api?username=chrico&count_private=true&show_icons=true&theme=dark)](https://github.com/chrico)
