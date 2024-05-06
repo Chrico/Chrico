@@ -1,6 +1,6 @@
 # Hey ☕, I'm Chris!
 
-🖥️ I'm the Director of Engineering (Technical Excellence) at [Inpsyde](https://inpsyde.com).
+🖥️ I'm the Director of Engineering (Technical Excellence) at [Syde](https://syde.com).
 
 💪 I love sports and being outside with my Gravel Bike. 🚲
 
