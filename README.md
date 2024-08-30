@@ -13,7 +13,7 @@
 
 🍣 Sushi and Anime.
 
-🤖 I've stolen WordPress and the web 984 hours in 2015.
+🤖 I've stolen WordPress and the web 984 hours in 2015 by removing midnight from code.
 
 ## 🔗Links
 
