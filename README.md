@@ -13,6 +13,8 @@
 
 🍣 Sushi and Anime.
 
+🤖 I've stolen WordPress and the web 984 hours in 2015.
+
 ## 🔗Links
 
 - [Linkedin](https://www.linkedin.com/in/christian-leucht-440500127/)
