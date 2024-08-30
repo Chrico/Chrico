@@ -1,3 +1,6 @@
+![1500x500](https://github.com/user-attachments/assets/a6603696-2fe5-42cb-93cc-205417cb1ca1)
+
+
 # Hey ☕, I'm Chris!
 
 🖥️ I'm the Director of Engineering (Technical Excellence) at [Syde](https://syde.com).
