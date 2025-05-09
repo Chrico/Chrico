@@ -7,9 +7,9 @@
 
 💪 I love sports and being outside with my Gravel Bike. 🚲
 
-🏁 I love SimRacing (Assetto Corsa Competizione) and Kart racing.
+🏁 I love Sim Racing and Kart racing.
 
-⚽ I'm a football/soccer coach for children.
+🏎️ I'm a proud dad of a young girl who is a big racing talent. 😍
 
 🍣 Sushi and Anime.
 
